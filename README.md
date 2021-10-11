@@ -1,1 +1,2 @@
 # kidsshoes
+Kids Shoes at [Spendless NZ](https://www.spendless.co.nz/shop-categories/kids.html) always gives your children the trendiest, most reliable, and affordable pair! You can trust our range to have the style to suit everyone, from the toddler’s shoes to the shoes for the tallest teenagers. Spendless has a large range of casual, school, dress shoes and sandals. Buy online or instore around Australia today.
